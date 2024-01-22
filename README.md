@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m VishwaDilshara<br>👀 I’m interested in programming<br>🌱 I’m currently learning SLIIT (Sri Lanka Institute of Information Technology)<br>📫 How to reach me through my email (vishwadilshara0@gmail.com)
+👋 Hi, I’m Akindu<br>👀 I’m interested in programming<br>🌱 I’m currently learning SLIIT (Sri Lanka Institute of Information Technology)<br>📫 How to reach me through my email (vishwadilshara0@gmail.com)
 
 
 ## 🌐 Socials:
